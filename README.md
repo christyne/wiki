@@ -1,0 +1,2 @@
+# wiki
+The Ethereum Wiki -I am truly sorry if this cgain of mess is due to me. TRULY.  I SEE A YEAR AGO AND SAY NO WAY. ITS BEEN LESS THAN A MONTH.THEN I SEE ALL DOWn loads uder my name and trwced this  here. please kniw i consent  anything that is due to be removed due to a contract. I  attemped to get 2 and recieved decline email. I  have be trying to mune on minergate.com for eth and just trying to get it to link to them. 
